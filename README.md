@@ -13,6 +13,7 @@ O resultado pretendido é a utilização de duas tecnologias para a criação de
 
 Foi bem bacana e interessante conhecer mais ferramentas de tecnologias com IA. Resultado é acima do esperado e de forma simples e rápida de realizar
 
+https://studio.d-id.com/share?id=0a6ed9d490074e3941cf50d50f1cc1ad&utm_source=copy
 
  #LabDIONattyOrNot. 
 
